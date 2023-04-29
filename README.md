@@ -1,1 +1,1 @@
-Nombre: Andres Alejandro Quezada Cabrera Carné: 202200174 Nombre: Chiristan Tzujul Atza Maya Carné: 202200069
+Nombre: Andres Alejandro Quezada Cabrera Carné: 202200174 Nombre: Christian Samuel Brán Mazariegos Carné: 202200048
